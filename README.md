@@ -10,5 +10,7 @@ voor de fetch opdracht ....
 
 dsafdskafjk 
 dsajflka
- 
+
+nieuwe regels
+
  
