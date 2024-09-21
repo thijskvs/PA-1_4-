@@ -4,3 +4,11 @@ hoe werkt dit
 blalbalballlkajksjfks 
 lk;jljl;
 extra change
+
+voor de fetch opdracht ....
+
+
+dsafdskafjk 
+dsajflka
+ 
+ 
